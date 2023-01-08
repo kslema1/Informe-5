@@ -181,7 +181,7 @@ SECCIÓN 10–3 Dispositivos electromagnéticos
 
 5. VIDEO.
 
-JNSDVJDFBOFNBOARNVLFDANKSJND
+https://youtu.be/2P05FkMZ_U8
 
 6. CONCLUSIONES
 
